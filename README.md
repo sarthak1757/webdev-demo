@@ -29,16 +29,5 @@
     Aarav’s thoughtful gestures—whether helping a friend, sharing a laugh, or offering encouragement—reflect his genuine heart.
      With a spark in his eyes and a natural sense of humor, 
     he can brighten even the dullest day, making his presence truly unforgettable.</p><br>
-
-
-
-
-
-
-
-
-
-    
-
 </body>
 </html>
